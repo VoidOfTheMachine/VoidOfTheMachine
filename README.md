@@ -12,5 +12,5 @@
 * 💻 Programmer (🇨/➕➕, 🐍, 🦀) 💻.
 * 🎵 Rhythm game enjoyer (4-key VSRG) & Piano Player 🎵
 * 🙃 Open Source Makes me happy 🐧
-* 🐱 Vulpes & Catus 🦊
+* 🦨 <b><i>Mephitidae</i></b> 🦨
 * 🗣️ Etymologist 📚
