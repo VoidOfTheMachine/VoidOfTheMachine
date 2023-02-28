@@ -8,7 +8,7 @@
 ---
 
 ### ❓ About Me:
-* ⚡ Aspiring Electrical Engineer ⚡
+* ⚡ Aspiring Engineer ⚡
 * 💻 Programmer (🇨/➕➕, 🐍, 🦀) 💻.
 * 🎵 Rhythm game enjoyer (4-key VSRG) & Piano Player 🎵
 * 🙃 Open Source Makes me happy 🐧
