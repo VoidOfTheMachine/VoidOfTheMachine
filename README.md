@@ -8,7 +8,9 @@
 ---
 
 ### ❓ About Me:
-* Computer Programmer (systems, games, utilities, hacks at one point) 💻.
+* ⚡ Aspiring Electrical Engineer ⚡
+* 💻 Programmer (systems, games, utilities, hacker) 💻.
 * 🎵 Rhythm game enjoyer (4-key VSRG) & Piano Player 🎵
 * 🙃 Open Source Makes me happy 🐧
-* Foxes are the dominant animal 🦊
+* 🐱 Vulpes & Catus 🦊
+* 🗣️ Etymologist 📚
