@@ -9,7 +9,7 @@
 
 ### ❓ About Me:
 * ⚡ Aspiring Electrical Engineer ⚡
-* 💻 Programmer (systems, games, utilities, hacker) 💻.
+* 💻 Programmer (🇨/➕➕, 🐍, 🦀) 💻.
 * 🎵 Rhythm game enjoyer (4-key VSRG) & Piano Player 🎵
 * 🙃 Open Source Makes me happy 🐧
 * 🐱 Vulpes & Catus 🦊
