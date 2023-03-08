@@ -13,5 +13,5 @@
 * Part-Time Hacker
 * 🎵 Rhythm game enjoyer (4-key VSRG && Left hand Mouse on Osu!Standard) & Piano Player 🎵
 * 🙃 Open Source Makes me happy 🐧
-* 🦨 <b><i>Mephitidae</i></b> 🦨
+* 🦨 <b><i>Mephitid</i></b> 🦨
 * 🗣️ Etymologist 📚
